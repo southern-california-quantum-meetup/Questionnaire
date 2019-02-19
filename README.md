@@ -7,6 +7,6 @@ Click "View Raw" at the bottom of the new window (this downloads the word docume
 
 Edit the document locally in Word or a text editor
 
-Please email the editted file as word doc or Pdf to tlubowe@gmail.com
+Please email the editted file to tlubowe@gmail.com
 
 Please do not hesitate to contact either Doug or Tom for any ideas that are not covered in the survey!
